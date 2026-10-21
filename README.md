@@ -241,4 +241,4 @@ Dead Cells is available as a **full free version** with all features and updates
 Download Dead Cells now and embark on your thrilling adventure today! Don't miss out on the action and excitement waiting for you!
 
 ---
-**Last updated:** 2026-10-21 04:23:32 UTC
+**Last updated:** 2026-10-21 09:58:50 UTC
